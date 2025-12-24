@@ -4,6 +4,6 @@
 - 📫 How to reach me
 - 
 1>Mail - sriramkumaryuvarraj@gmail.com
-2>Instagram-https://instagram.com/yuvarraj_sriramkumar_2002?utm_medium=copy_link
+
 3>LinkedIn-https://www.linkedin.com/in/yuvarraj-sriramkumar-9423251b4/
 
