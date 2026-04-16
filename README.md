@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate to explore the Artificial Intelligenc and Machine Learning Technologies 
 - 📫 How to reach me
 - 
-✉️ Mail - sriramkumaryuvarraj@gmail.com
+✉️ Mail - sriramkumaryuvarraj1@gmail.com
 
-🔗 LinkedIn - https://www.linkedin.com/in/yuvarraj-sriramkumar-9423251b4/
+🔗 LinkedIn - https://www.linkedin.com/in/yuvarraj-sriramkumar/
 
